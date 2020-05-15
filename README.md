@@ -1,0 +1,2 @@
+# safa
+https://discord.com/api/webhooks/710947591311065181/ydMXM1WsQRFWSOqNv1M1YDmSqTt24V1GJcdIfyagwWMYiHOxn_WasiCFVhgWUe1Ah2X9
